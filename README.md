@@ -1,1 +1,1 @@
-# k-z-bas-na
+kız basına
